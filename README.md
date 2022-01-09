@@ -1,4 +1,2 @@
 # DroneProject
-
-fakufqfqo'yfwq
-`1
+ㅎㅇ
